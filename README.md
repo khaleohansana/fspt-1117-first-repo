@@ -6,3 +6,4 @@ First repo for the new class
 "and all of a sudden a random meteor comes from the sky"
 "crashing into the lake not far from my casa"
 "all of a sudden a bunch of aliens burst thru the wake of the lake" 
+"and i whipped out my 45 and domed these invaders while blake had his flamethrower thus roasting them"
