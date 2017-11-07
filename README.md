@@ -5,5 +5,5 @@ First repo for the new class
 "were walking down the street with my 2 pitull's and his bulldog"
 "and all of a sudden a random meteor comes from the sky"
 "crashing into the lake not far from my casa"
-"all of a sudden a bunch of aliens burst thru the wake of the lake" 
+"all of a sudden a bunch of aliens burst thru the wake" 
 "and i whipped out my 45 and domed these invaders while blake had his flamethrower thus roasting them"
